@@ -6,4 +6,4 @@
 - 💬 Ask me about any of my projects that I have listed in my repository
 - 📫 How to reach me: Email - sahibathwal@gmail.com
 - 😄 Pronouns: He/His/Him
-- ⚡ Fun fact: I have been producing music since I was 15.
+- ⚡ Fun fact: I have been producing music since I was 15
